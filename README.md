@@ -1,6 +1,1 @@
-the
-
-
-the the the the
-
-the
+как
